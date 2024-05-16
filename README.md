@@ -1,4 +1,4 @@
-IM A THE REAL MONARCH, RETARDS
+IM A THE REAL MONARCH, RETARDS. Keep gambling.
 
 <!---
 monarchwastaken/monarchwastaken is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
